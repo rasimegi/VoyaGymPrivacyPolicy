@@ -1,7 +1,7 @@
 📄 Privacy Policy (Gizlilik Politikası) – English
 
 App Name: Voya Gym
-Effective Date: [May 30, 2025]
+Effective Date: May 30, 2025
 
 This Privacy Policy explains how we collect, use, and protect your information.
 
